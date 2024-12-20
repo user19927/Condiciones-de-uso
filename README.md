@@ -1,1 +1,1 @@
-# Condiciones-de-uso
+PASENOS Y NO EJERCEMOS 
